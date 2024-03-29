@@ -1,1 +1,1 @@
-# Hack-Thrones-
+# Hack-Thrones
